@@ -7,9 +7,8 @@
 
 <br>
 
+![image](https://user-images.githubusercontent.com/86671456/173496078-c005565d-3399-4f67-8c3a-bad2badd8658.png)
 
-
-![Uploading 스크린샷 2022-06-14 오후 1.51.43.png…]()
 
 ## Abstract
 
